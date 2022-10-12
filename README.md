@@ -2,7 +2,7 @@
 
 
 
-[![how to login to disney plus on tv](redd.png)](https://github.com/techworkie/how.to.login.to.disney.plus.on.tv)
+[![how to login to disney plus on tv](redd.png)](https://icncomputer.com/how-to-login-to-disney-plus-on-tv/)
 
 
 Many people often wonder Disney plus login issue on various devices like Smart TV, Smartphones, etc. In this article, we have provided you with a step-by-step guide to quickly understand how to do it efficiently and conveniently without asking for help.
